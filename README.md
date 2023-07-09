@@ -1,2 +1,2 @@
 # forthefall.com
-post-apoc gear for all, for the fall
+post-apoc gear for the fall
